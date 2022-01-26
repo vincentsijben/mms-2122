@@ -12,7 +12,7 @@ https://student-1820877loo.mamdt.com/multi-media-story/
 Jens, Melle, Jesper<br>
 https://student-1751387noor.mamdt.com/multimediastory/
 
-Nynke, <br>
+Nynke, Joey <br>
 https://student-2065177bakk.mamdt.com/
 
 
