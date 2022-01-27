@@ -1,9 +1,12 @@
 # mms-2122
 
-[Zoë, Gemma, Marieke](https://student-2063413sluy.mamdt.com/de-kou-in-haar-huis/)<br>
+<a href="https://student-2063413sluy.mamdt.com/de-kou-in-haar-huis/" target="_blank">Zoë, Gemma, Marieke</a><br>
 
-Max, Job, Arthur<br>
-https://student-2062567vonk.mamdt.com/
+<a href="https://student-2062567vonk.mamdt.com/" target="_blank">Max, Job, Arthur</a><br>
+
+<a href="https://student-1521756smit.mamdt.com/eye-opener/" target="_blank">Michele, Jessica</a><br>
+
+
 
 Hugo, Vicky, Chayenne<br>
 https://student-1820877loo.mamdt.com/multi-media-story/
