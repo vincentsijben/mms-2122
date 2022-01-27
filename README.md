@@ -18,4 +18,10 @@ https://student-2065177bakk.mamdt.com/
 Merel, Anouk, Marijn<br>
 https://www.groenmoetjedoen-mms.nl/
 
+Mox, Lanka, Shento<br>
+https://student-1837869hend.mamdt.com/
+
+Michel, Devon, Cas<br>
+https://michelvanderput.github.io/mms_cmd/
+
 
