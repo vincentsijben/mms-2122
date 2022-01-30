@@ -1,10 +1,10 @@
 # mms-2122
 
-1. <a href="http://groenewijken.nl/" target="_blank">Luuk, Yannick, Lotte</a>
+1. <a href="https://groenewijken.nl/" target="_blank">Luuk, Yannick, Lotte</a>
 2. <a href="https://student-2063413sluy.mamdt.com/de-kou-in-haar-huis/" target="_blank">Zoë, Gemma, Marieke</a>
 3. <a href="https://www.groenmoetjedoen-mms.nl/" target="_blank">Merel, Anouk, Marijn</a>
 4. <a href="https://student-1886509goet.mamdt.com/multimedia/" target="_blank">Nina, Emma, Ida</a>
-5. <a href="http://blockchaincity.nl/" target="_blank">Timo, Guerlain, Quentin</a>
+5. <a href="https://www.quentinlucwalters.com/" target="_blank">Timo, Guerlain, Quentin</a>
 6. <a href="https://student-2064748stok.mamdt.com/Media-story/" target="_blank">Chayenna, Roos, Annet</a>
 7. <a href="https://student-2065177bakk.mamdt.com/" target="_blank">Nynke, Joey</a>
 8. <a href="https://student-1837869hend.mamdt.com/" target="_blank">Mox, Lanka, Shento</a>
